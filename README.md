@@ -1,0 +1,2 @@
+# notOrtalamasinaGoreGectiKaldi
+ www.patika.dev
